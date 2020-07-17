@@ -6,6 +6,10 @@ This repo will contain each day challenge completing status like Day-1 16-July-2
 
 ========================================
 
+**Day-2 challenge completed**
+
+========================================
+
 **Day-1 challenge completed**
 
 ========================================
