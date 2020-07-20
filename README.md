@@ -7,23 +7,28 @@ I pledge with this challenge on **16<sup>th</sup> July 2020** and my date of bir
 
 ========================================
 
+**Day-5 challenge completed**
+#### 20<sup>th</sup> July 2020
+
+========================================
+
 **Day-4 challenge completed**
-#### 19<sup>th</sup>-July-2020
+#### 19<sup>th</sup> July 2020
 
 ========================================
 
 **Day-3 challenge completed**
-#### 18-<sup>th</sup>July-2020
+#### 18<sup>th</sup>July 2020
 
 ========================================
 
 **Day-2 challenge completed**
-#### 17<sup>th</sup>-July-2020
+#### 17<sup>th</sup> July 2020
 
 ========================================
 
 **Day-1 challenge completed**
-#### 16<sup>th</sup>-July-2020
+#### 16<sup>th</sup> July 2020
 
 ========================================
 
