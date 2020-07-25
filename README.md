@@ -6,6 +6,12 @@ I pledge with this challenge on **16<sup>th</sup> July 2020** and my date of bir
 ## 365-Days-No-Fab-Challenge
 
 
+
+========================================
+
+**Day-10 challenge completed**
+#### 25<sup>th</sup> July 2020
+
 ========================================
 
 **Day-9 challenge completed**
