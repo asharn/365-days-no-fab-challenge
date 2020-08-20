@@ -7,6 +7,11 @@ I pledge with this challenge on **16<sup>th</sup> July 2020** and my date of bir
 
 ========================================
 
+**Day 10 challenge completed**
+#### 19<sup>th</sup> August 2020
+
+========================================
+
 **Day 9 challenge completed**
 #### 18<sup>th</sup> August 2020
 
